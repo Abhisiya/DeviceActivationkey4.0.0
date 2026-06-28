@@ -1,0 +1,1 @@
+# DeviceActivationkey4.0.0
